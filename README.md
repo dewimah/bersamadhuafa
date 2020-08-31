@@ -1,3 +1,3 @@
 # bersamadhuafa
-ingin mendirikan komunitas yang peduli dengan para dhuafa
-Halo gais! Perkenalkan nama saya Dewi, saya adalah mahasisw1 semester 3 di Universitas Sebelas Maret. 
+Halo gais! Perkenalkan nama saya Dewi, saya adalah mahasiswi semester 3 di Universitas Sebelas Maret. Kalian pasti tidak asing dengan berbagai sosial media yang ada. Akhir-akhir ini di Instagram banyak sekali orang yang menge-share lansia yang masih berjualan hingga malam, dagangan mereka yang tidak laku alias sepi pembeli. Dengan aksi mereka tersebut kekuatan sosial media telah menunjukkan kebermanfaatan yang cukup tinggi. Ya, dagangan mereka tidak sepi pembeli, minimal sudah berbeda dengan keadaan sebelumnya. Tapi, saya kurang yakin dengan jangka panjangnya.Seharusnya,mereka yang telah berusia lanjut tidak perlu melakukan pekerjaan berat, mereka seharusnya beristirahat dan menikmati masa tua mereka. Maka dari itu, saya ingin sekali mengajak kalian semua yang memiliki pemikiran dan keinginan yang sama dengan saya untuk bersama-sama membantu mereka dan meringankan beban mereka. 
+Siapapun kamu dari mana pun kamu kalau ingin join bersama saya silakan hubungi saya.
